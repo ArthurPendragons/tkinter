@@ -1,0 +1,1 @@
+just playing around remembering how to do certain aspects.
